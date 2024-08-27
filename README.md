@@ -1,0 +1,2 @@
+# NewCodingBot
+were strong together
